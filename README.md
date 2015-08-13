@@ -1,0 +1,1 @@
+# AdoptaSchool_InternProjects_2015
